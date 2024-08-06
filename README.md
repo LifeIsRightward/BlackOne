@@ -12,7 +12,6 @@ https://youtu.be/vJ8vw9EPgvU
 
 ### 발표 자료
 ![image](https://github.com/user-attachments/assets/dde98442-eb46-47e0-872a-d22e48f70b61)
-![image](https://github.com/user-attachments/assets/18b22705-2ece-451c-a200-d37465346791)
 ![image](https://github.com/user-attachments/assets/91a00b4b-f690-4338-9159-00e40d76ace7)
 ![image](https://github.com/user-attachments/assets/b610b697-e112-4c31-89a4-6a135a0fd353)
 ![image](https://github.com/user-attachments/assets/b4a521d5-ab76-4807-98fb-48a3ed57f4bf)
