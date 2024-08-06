@@ -25,9 +25,7 @@ https://youtu.be/vJ8vw9EPgvU
 ![image](https://github.com/user-attachments/assets/cd369294-fa9d-4b1f-b59c-9897bdad05c7)
 ![image](https://github.com/user-attachments/assets/c55c9355-2296-4847-863e-b044cce75783)
 ![image](https://github.com/user-attachments/assets/88d52c37-b8be-4297-a5cf-37425d5dbda7)
-![image](https://github.com/user-attachments/assets/44b6edfd-ec77-4f41-a306-22342daf9301)
 ![image](https://github.com/user-attachments/assets/368194af-efb5-4e21-96db-43a45955cba1)
-![image](https://github.com/user-attachments/assets/bc0dfe4e-8f97-46ad-8c17-4200e459a5db)
 ![image](https://github.com/user-attachments/assets/73f4546f-d85c-4016-9f48-ea5042238b01)
 
 
